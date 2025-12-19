@@ -1,5 +1,5 @@
 # 💫 Acerca de mi:
-Actualmente estudiante de la Universidad de Concepción con gran enstusiasmo por las tecnologías y desarrollo web
+...
 
 
 ## 🌐 Redes sociales:
